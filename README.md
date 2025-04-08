@@ -1,1 +1,1 @@
-# Just a legal entity
+# More than a placeholder and a legal entity 
